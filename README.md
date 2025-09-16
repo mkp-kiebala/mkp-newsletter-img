@@ -1,0 +1,1 @@
+# mkp-newsletter-img
